@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @berryk15
-- 👀 I’m interested in veterinary and game design
+- 👀 I’m interested in audio-visual and game design
 - 🌱 I’m currently learning games programming
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me my email: from school: fernanda.malkut.carmo@escola.pr.gov.br
